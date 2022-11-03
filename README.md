@@ -13,5 +13,5 @@ Contatos:<div><a href="https://www.linkedin.com/in/élika-castro-9a2b10189/" tar
 
 
 
-![retsuko-nice](https://user-images.githubusercontent.com/112868623/199637348-2e020810-ad94-40b2-89ac-5040cdcf4a23.gif)
 
+![ezgif com-gif-maker (1)](https://user-images.githubusercontent.com/112868623/199854382-e16bf8a6-bd7f-48e6-964d-5500e5f27531.gif)
